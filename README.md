@@ -1,5 +1,5 @@
 me n kk beating up Elon cuz he keeps sussed my accs bro
-crying getting sick everywhere this is us
+crying getting sick everywhere this is us is it rlly gore tho? Js fanart of Kenny leave me alone n its a Lana del ray song leave me alone n get a life eeeyuuccckkk im not some animal to observe 
 <img width="540" height="350" alt="IMG_6875" src="https://github.com/user-attachments/assets/99eb82db-5f10-428a-8956-32163e81d2a6" />
 
 <img width="498" height="281" alt="IMG_6876" src="https://github.com/user-attachments/assets/9c25cf0a-3dd3-4b7d-a9f5-3b39639c4e30" />
