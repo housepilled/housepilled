@@ -1,4 +1,4 @@
-me n bro fr ily mckennysokawaii btw ur gay ash n need to fllw my new acc cuz mine js got SUSSED on twt bro NOW plz dawg
+me n kk beating up Elon cuz he keeps sussed my accs bro
 crying getting sick everywhere this is us
 <img width="540" height="350" alt="IMG_6875" src="https://github.com/user-attachments/assets/99eb82db-5f10-428a-8956-32163e81d2a6" />
 
