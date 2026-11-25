@@ -1,6 +1,9 @@
 me n bro fr ily mckennysokawaii btw ur gay ash n need to fllw my new acc cuz mine js got SUSSED on twt bro NOW plz dawg
-<img width="892" height="912" alt="IMG_6433" src="https://github.com/user-attachments/assets/99f0d88a-6a7a-4046-8a39-c177c7a88497" />
-<img width="360" height="266" alt="IMG_6794" src="https://github.com/user-attachments/assets/a4584472-e0f3-45a3-85b6-1cff4e9cfe5a" />
-<img width="1170" height="795" alt="IMG_6667" src="https://github.com/user-attachments/assets/f5732767-9312-4fa0-bffc-84c0c1cd53f2" />
-<img width="904" height="762" alt="IMG_6733" src="https://github.com/user-attachments/assets/64852bd7-d818-4624-b6e0-fd21d640e925" />
-<img width="508" height="680" alt="IMG_6734" src="https://github.com/user-attachments/assets/0a10f36c-93fc-497f-b6e9-f449986ed00d" />
+crying getting sick everywhere this is us
+<img width="540" height="350" alt="IMG_6875" src="https://github.com/user-attachments/assets/99eb82db-5f10-428a-8956-32163e81d2a6" />
+
+<img width="498" height="281" alt="IMG_6876" src="https://github.com/user-attachments/assets/9c25cf0a-3dd3-4b7d-a9f5-3b39639c4e30" />
+<img width="1199" height="853" alt="IMG_6879" src="https://github.com/user-attachments/assets/06dc73a1-977d-4c2d-859b-f31d50c0b8a0" />
+<img width="1200" height="1200" alt="IMG_6880" src="https://github.com/user-attachments/assets/7273b2a3-6dc9-413c-9396-2315691254a8" />
+<img width="892" height="912" alt="IMG_6881" src="https://github.com/user-attachments/assets/650e89ef-3825-4a17-ad77-1ceab4c58f31" />
+<img width="508" height="680" alt="IMG_6882" src="https://github.com/user-attachments/assets/8573dbcd-0e27-4215-b47c-f0f017613424" />
