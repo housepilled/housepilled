@@ -1,4 +1,4 @@
-not reading allat u lost me first sentence skill issue #whatdatmeam
+not reading allat u lost me first sentence skill issue #whatdatmean also I gen DONT care lmao 
 <img width="540" height="350" alt="IMG_6875" src="https://github.com/user-attachments/assets/99eb82db-5f10-428a-8956-32163e81d2a6" />
 
 <img width="498" height="281" alt="IMG_6876" src="https://github.com/user-attachments/assets/9c25cf0a-3dd3-4b7d-a9f5-3b39639c4e30" />
