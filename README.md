@@ -1,4 +1,7 @@
-not reading allat u lost me first sentence skill issue #whatdatmean also I gen DONT care lmao 
+<img width="922" height="1025" alt="IMG_1442" src="https://github.com/user-attachments/assets/af4e1f4a-5a98-4518-b003-592bef97dd4e" />
+why this so mad
+<img width="963" height="994" alt="IMG_1452" src="https://github.com/user-attachments/assets/026fa614-b16e-4cf7-a9de-388a89995681" />
+
 <img width="540" height="350" alt="IMG_6875" src="https://github.com/user-attachments/assets/99eb82db-5f10-428a-8956-32163e81d2a6" />
 
 <img width="498" height="281" alt="IMG_6876" src="https://github.com/user-attachments/assets/9c25cf0a-3dd3-4b7d-a9f5-3b39639c4e30" />
